@@ -13,6 +13,7 @@
 
  <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br><br>
  
+</p> 
 
 <h4 align="center">SON 14 PARTES EN WINRAR DEL JUEGO - 1 PARTE EN WINRAR DEL UPDATE Y 4 PARTES EN WINRAR DE LOS DLC</h4>
 
