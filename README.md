@@ -10,6 +10,7 @@
 <h4 align="center">- FUENTE OFICIAL DEL JUEGO - <a href="https://bit.ly/PS3_ROMS_CITY" target="blank">PS3 ROM CITY</a></h4>
 
 <h1 align="center">The Last Of Us NO HAN BCUS98174 BY CJ:</h1>  
+
  <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br><br>
  
  </p>
@@ -50,5 +51,22 @@
 
 <!-- BLOG-POST-LIST:END -->
 
+<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br><br>
 
+</p>
 
+<h4 align="center">DLC</h4>
+
+<!-- BLOG-POST-LIST:START -->
+
+- PARTE 1: [https://www.mediafire.com/file/kb4ao7gldyrcr63/DLC+BDLCUSLDBBYCJ.part1.rar/file](https://www.mediafire.com/file/kb4ao7gldyrcr63/DLC+BDLCUSLDBBYCJ.part1.rar/file)
+
+- PARTE 2: [https://www.mediafire.com/file/we45tq7nleahmg2/DLC_BDLCUSLDBBYCJ.part2.rar/file](https://www.mediafire.com/file/we45tq7nleahmg2/DLC_BDLCUSLDBBYCJ.part2.rar/file)
+
+- PARTE 3: [https://www.mediafire.com/file/ufkr53c7zdbem5p/DLC_BDLCUSLDBBYCJ.part3.rar/file](https://www.mediafire.com/file/ufkr53c7zdbem5p/DLC_BDLCUSLDBBYCJ.part3.rar/file)
+
+- PARTE 4: [https://www.mediafire.com/file/6y24x74xzrpzz5f/DLC_BDLCUSLDBBYCJ.part4.rar/file](https://www.mediafire.com/file/6y24x74xzrpzz5f/DLC_BDLCUSLDBBYCJ.part4.rar/file)
+
+<!-- BLOG-POST-LIST:END -->
+
+ <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br><br>
