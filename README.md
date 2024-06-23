@@ -43,8 +43,10 @@
 - PARTE 12: [https://www.mediafire.com/file/yz3tfze36bmcbpl/TLOUNOHANBCUSBYCJ.part12.rar/file](https://www.mediafire.com/file/yz3tfze36bmcbpl/TLOUNOHANBCUSBYCJ.part12.rar/file)
 
 - PARTE 13: [https://www.mediafire.com/file/h95etvqmlzm105b/TLOUNOHANBCUSBYCJ.part13.rar/file](https://www.mediafire.com/file/h95etvqmlzm105b/TLOUNOHANBCUSBYCJ.part13.rar/file)
-- 
+
 - PARTE 14: [https://www.mediafire.com/file/9h31imd76wgutfn/TLOUNOHANBCUSBYCJ.part14.rar/file](https://www.mediafire.com/file/9h31imd76wgutfn/TLOUNOHANBCUSBYCJ.part14.rar/file)
+
+- UPDATE: [The Last Of Us - UPDATE](https://bit.ly/4byAPwQ)
 
 <!-- BLOG-POST-LIST:END -->
 
