@@ -1,6 +1,7 @@
 <!-- Intro -->
 
-<a href="https://w0.peakpx.com/wallpaper/1003/367/HD-wallpaper-the-last-of-us-remastered.jpg" target="_blank"><img src="https://github.com/mahiiverse1/mahiiverse1/blob/main/mahii-header.png" /></a>
+<a href="https://github.com/Alexhacker1212/PS3_ROM_CITY/assets/173580098/f84c0299-40f0-4fa6-8d9f-b375e67fb035
+" target="_blank"><img src="" /></a>
 <h1 align="center">The Last Of Us</h1>
 <h3 align="center">About Me :</h3>  
  <p>
