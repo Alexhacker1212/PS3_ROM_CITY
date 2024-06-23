@@ -14,15 +14,39 @@
  
  </p>
 
-### SON 14 PARTES EN WINRAR DEL JUEGO 1 PARTE EN WINRAR DEL UPDATE Y 4 PARTES EN WINRAR DE LOS DLC
+<h4 align="center">SON 14 PARTES EN WINRAR DEL JUEGO - 1 PARTE EN WINRAR DEL UPDATE Y 4 PARTES EN WINRAR DE LOS DLC</h4>
 
 <!-- BLOG-POST-LIST:START -->
 
+- PARTE 1: https://www.mediafire.com/file/2btyhg0e7pwm5kk/TLOUNOHANBCUSBYCJ.part01.rar/file
 
-- PARTE 1: 
-- PARTE 2:
-- PARTE 3:
+- PARTE 2: https://www.mediafire.com/file/82fofcjais18b49/TLOUNOHANBCUSBYCJ.part02.rar/file
+
+- PARTE 3: https://www.mediafire.com/file/5wpigrc345713nc/TLOUNOHANBCUSBYCJ.part03.rar/file
+
+- PARTE 4: https://www.mediafire.com/file/kly1y412npgoq1d/TLOUNOHANBCUSBYCJ.part04.rar/file
+
+- PARTE 5: https://www.mediafire.com/file/kcv9atxpa4qfonk/TLOUNOHANBCUSBYCJ.part05.rar/file 
+
+- PARTE 6: https://www.mediafire.com/file/peuexpy0xb3vk29/TLOUNOHANBCUSBYCJ.part06.rar/file
+
+- PARTE 7: https://www.mediafire.com/file/ef5673cl72a6nre/TLOUNOHANBCUSBYCJ.part07.rar/file
+
+- PARTE 8: https://www.mediafire.com/file/qb26y7x3k52vz0f/TLOUNOHANBCUSBYCJ.part08.rar/file
+
+- PARTE 9: https://www.mediafire.com/file/7iz45kcuk8wg529/TLOUNOHANBCUSBYCJ.part09.rar/file
+
+- PARTE 10: https://www.mediafire.com/file/onfxx1t02ln7c3t/TLOUNOHANBCUSBYCJ.part10.rar/file
+
+- PARTE 11: https://www.mediafire.com/file/lv1gheikc1i8g9g/TLOUNOHANBCUSBYCJ.part11.rar/file
+
+- PARTE 12: https://www.mediafire.com/file/yz3tfze36bmcbpl/TLOUNOHANBCUSBYCJ.part12.rar/file
+
+- PARTE 13: https://www.mediafire.com/file/h95etvqmlzm105b/TLOUNOHANBCUSBYCJ.part13.rar/file
+
+- PARTE 14: https://www.mediafire.com/file/9h31imd76wgutfn/TLOUNOHANBCUSBYCJ.part14.rar/file
+
 <!-- BLOG-POST-LIST:END -->
 
-###
+
 
