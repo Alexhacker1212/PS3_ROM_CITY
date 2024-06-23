@@ -75,6 +75,4 @@ Credito: Carl Johnson y Alex
 
 Última edición: 23/06/2024
 
-<a href="https://visitcount.itsvg.in">
-  <img src="https://visitcount.itsvg.in/api?id=Alex&label=PS3%20ROM%20CITY&color=1&icon=2&pretty=false" />
-</a>
+[![](https://visitcount.itsvg.in/api?id=Alex&label=PS3%20ROM%20CITY&color=1&icon=2&pretty=false)](https://visitcount.itsvg.in)
