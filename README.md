@@ -17,6 +17,9 @@
 
 <h4 align="center">SON 14 PARTES EN WINRAR DEL JUEGO - 1 PARTE EN WINRAR DEL UPDATE Y 4 PARTES EN WINRAR DE LOS DLC</h4>
 
+<p align="center">
+  <a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Time+New+Roman&color=cyan&size=25&center=true&vCenter=true&width=600&height=100&lines=Contraseña+del+Juego;PS3+ROMS+CITY"></a>
+
 <!-- BLOG-POST-LIST:START -->
 
 - PARTE 1: [https://www.mediafire.com/file/2btyhg0e7pwm5kk/TLOUNOHANBCUSBYCJ.part01.rar/file](https://www.mediafire.com/file/2btyhg0e7pwm5kk/TLOUNOHANBCUSBYCJ.part01.rar/file)
