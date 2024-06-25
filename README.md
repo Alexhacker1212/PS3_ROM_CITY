@@ -9,7 +9,7 @@
   
 <h4 align="center">- FUENTE OFICIAL DEL JUEGO - <a href="https://bit.ly/PS3_ROMS_CITY" target="blank">PS3 ROM CITY</a></h4>
 
-<h1 align="center">The Last Of Us NO HAN BCUS98174 BY CJ:</h1>  
+<h1 align="center">The Last Of Us BCUS98174 NO HAN BY CJ:</h1>  
 
  <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br><br>
  
@@ -19,39 +19,39 @@
 
 
 
-  <a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Time+New+Roman&color=cyan&size=25&center=true&vCenter=true&width=600&height=100&lines=Contraseña+del+Juego;PS3+ROMS+CITY"></a>
+  <a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Time+New+Roman&color=cyan&size=25&center=true&vCenter=true&width=600&height=100&lines=Ta+God+El+Juego"></a>
 
 <!-- BLOG-POST-LIST:START -->
 
-- PARTE 1: [https://www.mediafire.com/file/2btyhg0e7pwm5kk/TLOUNOHANBCUSBYCJ.part01.rar/file](https://www.mediafire.com/file/2btyhg0e7pwm5kk/TLOUNOHANBCUSBYCJ.part01.rar/file)
+- PARTE 1: [https://www.fireload.com/249eff3d2fda2230/TLOUNOHANBCUSBYCJ.part01.rar](https://www.fireload.com/249eff3d2fda2230/TLOUNOHANBCUSBYCJ.part01.rar)
 
-- PARTE 2: [https://www.mediafire.com/file/82fofcjais18b49/TLOUNOHANBCUSBYCJ.part02.rar/file](https://www.mediafire.com/file/82fofcjais18b49/TLOUNOHANBCUSBYCJ.part02.rar/file)
+- PARTE 2: [https://www.fireload.com/f98d616e8bb7d64b/TLOUNOHANBCUSBYCJ.part02.rar](https://www.fireload.com/f98d616e8bb7d64b/TLOUNOHANBCUSBYCJ.part02.rar)
 
-- PARTE 3: [https://www.mediafire.com/file/5wpigrc345713nc/TLOUNOHANBCUSBYCJ.part03.rar/file](https://www.mediafire.com/file/5wpigrc345713nc/TLOUNOHANBCUSBYCJ.part03.rar/file)
+- PARTE 3: [https://www.fireload.com/05dcd986c0af8d94/TLOUNOHANBCUSBYCJ.part03.rar](https://www.fireload.com/05dcd986c0af8d94/TLOUNOHANBCUSBYCJ.part03.rar)
 
-- PARTE 4: [https://www.mediafire.com/file/kly1y412npgoq1d/TLOUNOHANBCUSBYCJ.part04.rar/file](https://www.mediafire.com/file/kly1y412npgoq1d/TLOUNOHANBCUSBYCJ.part04.rar/file)
+- PARTE 4: [https://www.fireload.com/b008493dd3aa95c5/TLOUNOHANBCUSBYCJ.part04.rar](https://www.fireload.com/b008493dd3aa95c5/TLOUNOHANBCUSBYCJ.part04.rar)
 
-- PARTE 5: [https://www.mediafire.com/file/kcv9atxpa4qfonk/TLOUNOHANBCUSBYCJ.part05.rar/file](https://www.mediafire.com/file/kcv9atxpa4qfonk/TLOUNOHANBCUSBYCJ.part05.rar/file)
+- PARTE 5: [https://www.fireload.com/a7ce1249a4626726/TLOUNOHANBCUSBYCJ.part05.rar](https://www.fireload.com/a7ce1249a4626726/TLOUNOHANBCUSBYCJ.part05.rar)
 
-- PARTE 6: [https://www.mediafire.com/file/peuexpy0xb3vk29/TLOUNOHANBCUSBYCJ.part06.rar/file](https://www.mediafire.com/file/peuexpy0xb3vk29/TLOUNOHANBCUSBYCJ.part06.rar/file)
+- PARTE 6: [https://www.fireload.com/e1a0a86aa2a187e9/TLOUNOHANBCUSBYCJ.part06.rar](https://www.fireload.com/e1a0a86aa2a187e9/TLOUNOHANBCUSBYCJ.part06.rar)
 
-- PARTE 7: [https://www.mediafire.com/file/ef5673cl72a6nre/TLOUNOHANBCUSBYCJ.part07.rar/file](https://www.mediafire.com/file/ef5673cl72a6nre/TLOUNOHANBCUSBYCJ.part07.rar/file)
+- PARTE 7: [https://www.fireload.com/c4a76f3c8ffffec1/TLOUNOHANBCUSBYCJ.part07.rar](https://www.fireload.com/c4a76f3c8ffffec1/TLOUNOHANBCUSBYCJ.part07.rar)
 
-- PARTE 8: [https://www.mediafire.com/file/qb26y7x3k52vz0f/TLOUNOHANBCUSBYCJ.part08.rar/file](https://www.mediafire.com/file/qb26y7x3k52vz0f/TLOUNOHANBCUSBYCJ.part08.rar/file)
+- PARTE 8: [https://www.fireload.com/4215222675b7b1ae/TLOUNOHANBCUSBYCJ.part08.rar](https://www.fireload.com/4215222675b7b1ae/TLOUNOHANBCUSBYCJ.part08.rar)
 
-- PARTE 9: [https://www.mediafire.com/file/7iz45kcuk8wg529/TLOUNOHANBCUSBYCJ.part09.rar/file](https://www.mediafire.com/file/7iz45kcuk8wg529/TLOUNOHANBCUSBYCJ.part09.rar/file)
+- PARTE 9: [https://www.fireload.com/32a1b8190aefccee/TLOUNOHANBCUSBYCJ.part09.rar](https://www.fireload.com/32a1b8190aefccee/TLOUNOHANBCUSBYCJ.part09.rar)
 
-- PARTE 10: [https://www.mediafire.com/file/onfxx1t02ln7c3t/TLOUNOHANBCUSBYCJ.part10.rar/file](https://www.mediafire.com/file/onfxx1t02ln7c3t/TLOUNOHANBCUSBYCJ.part10.rar/file)
+- PARTE 10: [https://www.fireload.com/343be78eac034fcd/TLOUNOHANBCUSBYCJ.part10.rar](https://www.fireload.com/343be78eac034fcd/TLOUNOHANBCUSBYCJ.part10.rar)
 
-- PARTE 11: [https://www.mediafire.com/file/lv1gheikc1i8g9g/TLOUNOHANBCUSBYCJ.part11.rar/file](https://www.mediafire.com/file/lv1gheikc1i8g9g/TLOUNOHANBCUSBYCJ.part11.rar/file)
+- PARTE 11: [https://www.fireload.com/78e295d0368cc10e/TLOUNOHANBCUSBYCJ.part11.rar](https://www.fireload.com/78e295d0368cc10e/TLOUNOHANBCUSBYCJ.part11.rar)
 
-- PARTE 12: [https://www.mediafire.com/file/yz3tfze36bmcbpl/TLOUNOHANBCUSBYCJ.part12.rar/file](https://www.mediafire.com/file/yz3tfze36bmcbpl/TLOUNOHANBCUSBYCJ.part12.rar/file)
+- PARTE 12: [https://www.fireload.com/a300881df5707010/TLOUNOHANBCUSBYCJ.part12.rar](https://www.fireload.com/a300881df5707010/TLOUNOHANBCUSBYCJ.part12.rar)
 
-- PARTE 13: [https://www.mediafire.com/file/h95etvqmlzm105b/TLOUNOHANBCUSBYCJ.part13.rar/file](https://www.mediafire.com/file/h95etvqmlzm105b/TLOUNOHANBCUSBYCJ.part13.rar/file)
+- PARTE 13: [https://www.fireload.com/c2f28e4e2768f031/TLOUNOHANBCUSBYCJ.part13.rar](https://www.fireload.com/c2f28e4e2768f031/TLOUNOHANBCUSBYCJ.part13.rar)
 
-- PARTE 14: [https://www.mediafire.com/file/9h31imd76wgutfn/TLOUNOHANBCUSBYCJ.part14.rar/file](https://www.mediafire.com/file/9h31imd76wgutfn/TLOUNOHANBCUSBYCJ.part14.rar/file)
+- PARTE 14: [https://www.fireload.com/bf1f7d5f0a765d53/TLOUNOHANBCUSBYCJ.part14.rar](https://www.fireload.com/bf1f7d5f0a765d53/TLOUNOHANBCUSBYCJ.part14.rar)
 
-- UPDATE: [The Last Of Us - UPDATE](https://bit.ly/4byAPwQ)
+- UPDATE: [https://bit.ly/4byAPwQ](https://bit.ly/4byAPwQ)
 
 <!-- BLOG-POST-LIST:END -->
 
@@ -62,13 +62,13 @@
 
 <!-- BLOG-POST-LIST:START -->
 
-- PARTE 1: [https://www.mediafire.com/file/kb4ao7gldyrcr63/DLC+BDLCUSLDBBYCJ.part1.rar/file](https://www.mediafire.com/file/kb4ao7gldyrcr63/DLC+BDLCUSLDBBYCJ.part1.rar/file)
+- PARTE 1: [https://www.fireload.com/11e1ce1c7cb0f33b/DLC_BDLCUSLDBBYCJ.part1.rar](https://www.fireload.com/11e1ce1c7cb0f33b/DLC_BDLCUSLDBBYCJ.part1.rar)
 
-- PARTE 2: [https://www.mediafire.com/file/we45tq7nleahmg2/DLC_BDLCUSLDBBYCJ.part2.rar/file](https://www.mediafire.com/file/we45tq7nleahmg2/DLC_BDLCUSLDBBYCJ.part2.rar/file)
+- PARTE 2: [https://www.fireload.com/11e1ce1c7cb0f33b/DLC_BDLCUSLDBBYCJ.part1.rar](https://www.fireload.com/11e1ce1c7cb0f33b/DLC_BDLCUSLDBBYCJ.part1.rar)
 
-- PARTE 3: [https://www.mediafire.com/file/ufkr53c7zdbem5p/DLC_BDLCUSLDBBYCJ.part3.rar/file](https://www.mediafire.com/file/ufkr53c7zdbem5p/DLC_BDLCUSLDBBYCJ.part3.rar/file)
+- PARTE 3: [https://www.fireload.com/a6c6445e37261535/DLC_BDLCUSLDBBYCJ.part3.rar](https://www.fireload.com/a6c6445e37261535/DLC_BDLCUSLDBBYCJ.part3.rar)
 
-- PARTE 4: [https://www.mediafire.com/file/6y24x74xzrpzz5f/DLC_BDLCUSLDBBYCJ.part4.rar/file](https://www.mediafire.com/file/6y24x74xzrpzz5f/DLC_BDLCUSLDBBYCJ.part4.rar/file)
+- PARTE 4: [https://www.fireload.com/11fd9e57187258c9/DLC_BDLCUSLDBBYCJ.part4.rar](https://www.fireload.com/11fd9e57187258c9/DLC_BDLCUSLDBBYCJ.part4.rar)
 
 <!-- BLOG-POST-LIST:END -->
 
