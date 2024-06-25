@@ -18,8 +18,7 @@
 <h4 align="center">SON 14 PARTES EN WINRAR DEL JUEGO - 1 PARTE EN WINRAR DEL UPDATE Y 4 PARTES EN WINRAR DE LOS DLC</h4>
 
 
-
-  <a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Time+New+Roman&color=cyan&size=25&center=true&vCenter=true&width=600&height=100&lines=Ta+God+El+Juego"></a>
+ <h4 align="center"><a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Time+New+Roman&color=cyan&size=25&center=true&vCenter=true&width=600&height=100&lines=Ta+God+El+Juego"></a>
 
 <!-- BLOG-POST-LIST:START -->
 
