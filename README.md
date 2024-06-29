@@ -63,7 +63,7 @@
 
 - PARTE 1: [https://www.fireload.com/11e1ce1c7cb0f33b/DLC_BDLCUSLDBBYCJ.part1.rar](https://www.fireload.com/11e1ce1c7cb0f33b/DLC_BDLCUSLDBBYCJ.part1.rar)
 
-- PARTE 2: [https://www.fireload.com/11e1ce1c7cb0f33b/DLC_BDLCUSLDBBYCJ.part1.rar](https://www.fireload.com/ab169b3ca7330b1e/DLC_BDLCUSLDBBYCJ.part2.rar)
+- PARTE 2: [https://www.fireload.com/ab169b3ca7330b1e/DLC_BDLCUSLDBBYCJ.part2.rar](https://www.fireload.com/ab169b3ca7330b1e/DLC_BDLCUSLDBBYCJ.part2.rar)
 
 - PARTE 3: [https://www.fireload.com/a6c6445e37261535/DLC_BDLCUSLDBBYCJ.part3.rar](https://www.fireload.com/a6c6445e37261535/DLC_BDLCUSLDBBYCJ.part3.rar)
 
